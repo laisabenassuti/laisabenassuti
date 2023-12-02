@@ -1,6 +1,6 @@
 ### Hi there :blush:
 
-### Hi, my name is Laisa Benassuti :v:
+### My name is Laisa Benassuti :v:
 ### I'm a Front End programmer :computer:
 ### I'm currently studying: Systems Analysis and Development :pencil2: :books:
 
